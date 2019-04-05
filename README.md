@@ -13,3 +13,12 @@ Repositorio de hiperenlaces a vídeos de entretenimiento, en lengua inglesa:
 [This parrot won't leave her favorite boy's side](https://www.facebook.com/1660569714024008/posts/2139052299509078/)
 
 [Britain's Got Talent 2017 Issy Simpson Amazing 8 Year Old Magician IRL Hermione Full Audition S11E02](https://youtu.be/AYVirkvNYco)
+
+[Pilot rescues baby chimp in Zenith STOL](https://youtu.be/Ofkd_rCZEG4)
+
+[Clownfish Named Nemo Has 10-Year Friendship With This Diver | The Dodo Soulmates](https://youtu.be/0x4LX_6P9No)
+
+[TOP ILLUSIONISTS on America's and Britain's Got Talent! | Got Talent Global](https://youtu.be/EfcrWljnLHw)
+
+[Peter Griffin, Elmo & More Sing Wrecking Ball On Britain's Got Talent](https://youtu.be/CSOQ_KizIP8)
+
