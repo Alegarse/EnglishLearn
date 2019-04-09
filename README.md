@@ -22,3 +22,11 @@ Repositorio de hiperenlaces a vídeos de entretenimiento, en lengua inglesa:
 
 [Peter Griffin, Elmo & More Sing Wrecking Ball On Britain's Got Talent](https://youtu.be/CSOQ_KizIP8)
 
+[Tom Cruise Forces James Corden to Skydive](https://youtu.be/G1wsCworwWk)
+
+[Peter Griffin, Elmo & More Sing Wrecking Ball On Britain's Got Talent](https://youtu.be/CSOQ_KizIP8)
+
+[Doing Impressions to Characters at Disneyland](https://youtu.be/MY7U8y8gw8c)
+
+[02 Family - Magic English - Disney](https://youtu.be/Akz2fTrqT6s)
+
